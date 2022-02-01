@@ -2,7 +2,11 @@
 
 # Yu Sheng
 
+[Instructional video](https://youtu.be/ZSIeSbt1eIo)
+
 ![Ready to serve photo](images/ready-to-serve.jpg)
+
+[Instructional video](https://youtu.be/ZSIeSbt1eIo)
 
 ## Ingredients
 - 100 gm fish meat slices
